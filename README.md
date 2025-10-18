@@ -1,0 +1,1 @@
+# Adventure-Story-German-Guid-Card1
